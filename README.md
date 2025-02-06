@@ -3,7 +3,7 @@
 #### My name is Sibeli Isaeth Rodríguez Díaz 
 This readme file allow me to present me to other people in this platform and I want you to know a litle bit of me
 
-I'm 16 years old and I love technology and the technology evolution and music, dance and design are my favorites hobbies
+I'm 20 years old and I love technology and the technology evolution and music, dance and design are my favorites hobbies
 
 I´m a systems engineering student of University of north in Barranquilla Colombia and I'm happy with this decision
 
